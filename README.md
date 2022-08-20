@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @10-Sudhanshu-Shukla
+- 👋 Hi, I’m @Sudhanshu-Shukla
 - 👀 I’m interested in Design and Coding
 - 🌱 I’m currently learning Adobe Xd
 - 📫 How to reach me 
